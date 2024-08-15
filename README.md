@@ -8,6 +8,5 @@ meu nome é Jose Anderson
 - Pretendo me desenvouver mais nos estudos
 - Tenho vontade de ser advogado
 
-  ## fale comigo 🙇‍♂️
-  -"instagran"
-  -@euandersonxz
+  ## fale comigo 📧
+  anderdoncardoso709@.gmail.com
