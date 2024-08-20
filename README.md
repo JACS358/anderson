@@ -4,7 +4,7 @@ meu nome é Jose Anderson
 🖤💚
 
 - tenho 16 anos 🎂
-- Estou estudando na Alura
+- Estou estudando na [Alura](https://www.alura.com.br)
 - Pretendo me desenvouver mais nos estudos
 - Tenho vontade de ser advogado
 
