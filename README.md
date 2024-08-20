@@ -10,3 +10,7 @@ meu nome é Jose Anderson
 
   ## fale comigo 📧
   anderdoncardoso709@.gmail.com
+
+
+
+  ![](https://media1.tenor.com/m/9lMQS7Cju9cAAAAC/demon-slayer-trio-dancing-gif.gif)
